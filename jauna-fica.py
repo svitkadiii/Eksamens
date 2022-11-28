@@ -1,0 +1,1 @@
+jauna funkcionalitate programmai
